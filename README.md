@@ -1,2 +1,0 @@
-# 1
-1K SPECIAL 1VS1
